@@ -1,2 +1,2 @@
 # edumonitor
-To unlock the zip email me at tmakumborenga@protonmail.com for password
+To unlock the zip email me at trmakumborenga@gmail.com for password
